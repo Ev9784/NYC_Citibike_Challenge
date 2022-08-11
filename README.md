@@ -4,5 +4,5 @@
 ## **OVERVIEW**
 
 
-![OmoVdaycardsGIF](https://user-images.githubusercontent.com/98368422/177685299-3a1c561d-2f12-4ca5-b9cd-f7571b84fd28.gif)
+![OmoVdaycardsGIF](https://th.bing.com/th/id/R.ebf1a8fd7ef0c1019a83734088d2ca05?rik=kQDe0BCzWzOY4g&pid=ImgRaw&r=0)
 
